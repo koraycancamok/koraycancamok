@@ -7,8 +7,6 @@
 
 - 👨‍💻 All of my projects are available at [https://koraycancamok.com/portfolio.html](https://koraycancamok.com/portfolio.html)
 
-- 💬 Ask me about **anything you want to know about me**
-
 - 📫 How to reach me **camokkoray@outlook.com**
 
 - 📄 Know about my experiences [https://koraycancamok.com/resume.html](https://koraycancamok.com/resume.html)
